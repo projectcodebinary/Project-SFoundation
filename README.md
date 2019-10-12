@@ -1,0 +1,2 @@
+# Project-SFoundation
+Women have been facing misogyny, male chauvinism and violence since ages. They are denied their basic rights like education and employment opportunities which hinder their development in every aspect. In order to strengthen women, Sarvpriye Foundation focuses on the promotion of girl child education and provides support to the women who are victims of domestic violence by generating employment opportunities, organising awareness campaigns and establishing vocational training centres.
